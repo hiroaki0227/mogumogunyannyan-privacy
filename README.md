@@ -1,0 +1,2 @@
+# mogumogunyannyan-privacy
+もぐもぐにゃんにゃんプライバシーポリシー用
